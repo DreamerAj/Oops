@@ -14,6 +14,7 @@
   <div align="center"> 
 
 <p align ="center"> <img width="20" height="20" src = "https://github.com/user-attachments/assets/73c6e08a-3093-4ad9-8d24-97df6a4217b2"> ~Ryoma Hoshi Fan - Discord: Dizyys </p> 
+<p align ="center"> ANY PRONOUNS~<img width="20" height="20" src = "https://github.com/user-attachments/assets/73c6e08a-3093-4ad9-8d24-97df6a4217b2"> 
 
  <sup>[strawpage](https://d1zyys.straw.page/)
 </p>
